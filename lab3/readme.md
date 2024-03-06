@@ -1,1 +1,1 @@
-schemat bloczkowy :P
+schemat bloczkowy i diagram przepływu :P
