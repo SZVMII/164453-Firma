@@ -1,0 +1,1 @@
+burn upy wykresy
