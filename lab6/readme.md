@@ -1,1 +1,1 @@
-czuje ryzyko
+analiza ryzyka i udziałowcy
