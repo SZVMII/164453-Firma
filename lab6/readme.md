@@ -1,0 +1,1 @@
+czuje ryzyko
